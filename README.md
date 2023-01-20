@@ -1,4 +1,4 @@
-### Hi there, I'm [Durgesh Samariya](https://durgeshsamariya.github.io) 👋
+### Hi there, I'm [Sudham](https://www.linkedin.com/in/sudhabrm/) 👋
 
 ## Introduction:
 
